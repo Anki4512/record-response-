@@ -1,4 +1,3 @@
-https://github.com/Anki4512/record-response-/blob/main/Gemini_Generated_Image_lrpjpllrpjpllrpj.png
 🏛️ Hollywood, FL Property & Planning Assistant
 Official Executive AI Portal | Office of the Mayor
 
